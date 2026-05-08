@@ -1,4 +1,4 @@
-
+Get the ultimate Bear for macOS plugin with Bear for macOS advanced Plugin - version history and export to PDF. Featuring version history and export to PDF, it's the best choice
 
 
 
